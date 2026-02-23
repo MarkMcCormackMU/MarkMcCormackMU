@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Mark McCormack
+# 👋 Hi, I'm Mark P. McCormack
 
 ### **He/Him | Ph.D. Candidate | Lecturer | Software Engineer** 🎓💻
 
